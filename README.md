@@ -10,3 +10,4 @@ ex: F:\Downloads\How_to_Raise_a_Happy_NEET_VH_h-game18\How to Raise a Happy NEET
 # Step 3: paste file1.rpsave to this folder and replace!
 # Step 4: Open game and click continue play and select save 1 
 # Have fun:)
+https://github.com/hectran12/How-to-Raise-a-Happy-NEET-Cheat-tutorial-/blob/main/img/Screenshot_175.png?raw=true
